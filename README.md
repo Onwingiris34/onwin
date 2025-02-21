@@ -1,40 +1,79 @@
-# 🎯 Onwin - Türkiye'nin En Güvenilir Bahis Sitesi
+# 🎯 ONWİN | EN YÜKSEK ORANLAR, EN HIZLI ÖDEMELER!
 
-## 🌟 Güncel Giriş Adresi
-[Onwin Giriş İçin Tıklayın](https://denmack.site/onwin) 🔥
+<div align="center">
 
-## 💎 Neden Onwin?
+[![](https://img.shields.io/badge/🎁%20ÖZEL%20TEKLİF-25.000%20TL%20HOŞGELDİN%20BONUSU-gold?style=for-the-badge)](https://denmack.site/onwin)
 
-* 🏆 15 Yıllık Güvenilir Geçmiş
-* 💰 %100 Hoşgeldin Bonusu
-* ⚡ 30 Dakikada Hızlı Çekim
-* 🔒 Lisanslı ve Yasal Altyapı
-* 📱 Mobil Uyumlu Tasarım
-* 🎮 2000+ Casino Oyunu
-
-### 🎯 Popüler Özellikler
-
-* 🎲 Canlı Casino ve Slot
-* ⚽ Yüksek Oranlı Spor Bahisleri
-* 🎰 Pragmatic Play Slot Oyunları
-* 🃏 Evolution Gaming Canlı Casino
-* 🎯 Sanal Sporlar
-* 🎪 Aviator ve Crash Oyunları
-
-## 💳 Para Yatırma Yöntemleri
-
-* 💳 Kredi Kartı
-* 🏧 Havale / EFT
-* 💰 Papara
-* 📱 QR Kod
-* 🔄 Kripto Para
-
-## 📞 7/24 Destek
-
-Telegram: @onwin
-WhatsApp: +90 XXX XXX XX XX
-E-posta: support@onwin.com
+### 🔥 HEMEN ÜYE OL, ANINDA KAZAN! 🔥
+[![Hemen Üye Ol](https://img.shields.io/badge/✨%20TIKLA%20VE%20KAYIT%20OL-BEDAVA%20BONUS%20KAZAN-success?style=for-the-badge&logo=google-chrome&logoColor=white)](https://denmack.site/onwin)
 
 ---
-⚠️ Bu site sadece 18 yaş üstü kullanıcılar içindir.
-🔞 Kumar bağımlılığına karşı lütfen bilinçli oynayın. 
+
+![](https://img.shields.io/badge/⚡%20ANLIK%20ÖDEME-10%20DAKİKA%20İÇİNDE-blue?style=for-the-badge)
+![](https://img.shields.io/badge/💰%20MİNİMUM%20YATIRIM-50%20TL-green?style=for-the-badge)
+![](https://img.shields.io/badge/🔒%20GÜVENLİ-SSL%20KORUMALI-red?style=for-the-badge)
+
+</div>
+
+## 🎁 ÜYELİK FIRSATLARI
+
+> ### 🔥 YENİ ÜYE ÖZEL PAKETİ
+> - 💎 %100 İLK YATIRIM BONUSU
+> - 🎯 500 BEDAVA FREE SPİN
+> - ⚡ 50 TL DENEMe BONUSU
+> - 🎰 KAYIP BONUSLARI
+> ### [HEMEN TIKLA VE BONUSLARI KAZAN!](https://denmack.site/onwin)
+
+## 💎 NEDEN ONWİN?
+
+<table>
+  <tr>
+    <td width="50%">
+      
+### ⭐️ AVANTAJLAR
+      
+- 🏆 EN YÜKSEK BAHİS ORANLARI
+- 💸 30 DAKİKADA ÖDEME GARANTİSİ
+- 🎯 PRATİK PARA YATIRMA
+- 🔒 %100 GÜVENLİ ALTYAPI
+- 📱 MOBİL UYUMLU
+- 🎮 2000+ OYUN
+      
+    </td>
+    <td width="50%">
+      
+### 🎮 POPÜLER OYUNLAR
+      
+- 🎲 EVOLUTION GAMING
+- ⚽ CANLI BAHİS
+- 🎰 SWEET BONANZA
+- 🎪 CRAZY TIME
+- 🎯 AVIATOR
+- 🃏 POKER
+      
+    </td>
+  </tr>
+</table>
+
+## 💳 YATIRIM SEÇENEKLERİ
+
+| Yöntem | Min. Yatırım | Bonus | İşlem |
+|:--------:|:-------------:|:-------------:|:-------------:|
+| 💳 Kredi Kartı | ₺50 | %20 | ANINDA |
+| 🏧 Havale | ₺100 | %15 | 2-3 DAKİKA |
+| 💰 Papara | ₺50 | %25 | ANINDA |
+| 📱 QR Kod | ₺50 | %20 | ANINDA |
+| 🔄 Kripto | $10 | %30 | 5-10 DAKİKA |
+
+<div align="center">
+
+## 🎁 HEMEN BAŞLA, ANINDA KAZAN!
+
+[![](https://img.shields.io/badge/⭐️%20ŞİMDİ%20KAYIT%20OL-25.000%20TL%20BONUS%20FIRSATI-orange?style=for-the-badge)](https://denmack.site/onwin)
+
+---
+
+### ⚠️ YASAL UYARI
+Bu site sadece 18 yaş üstü kullanıcılar içindir.
+
+</div> 
