@@ -1,0 +1,24 @@
+title: "Onwin Giriş | 25.000 TL Bonus ve 500 Free Spin 🎯 Onwin Casino"
+tagline: "Onwin - Türkiye'nin Güvenilir Bahis ve Casino Sitesi"
+description: "Onwin Giriş - 25.000 TL Bonus + 500 Free Spin 🎯 Sweet Bonanza, Aviator, Pragmatic Play, Canlı Casino, Spor Bahisleri. ⚡️ Hızlı Yatırım ve Çekim"
+keywords: >-
+  onwin, onwin giriş, onwin casino, onwin bahis, 
+  casino siteleri, canlı bahis, slot oyunları, 
+  sweet bonanza, aviator, crazy time, 
+  casino giriş, bahis siteleri, canlı casino,
+  bonus veren siteler, bedava bonus, free spin
+google_site_verification: true
+show_downloads: false
+is_project_page: false
+permalink: pretty
+plugins:
+  - jekyll-sitemap
+  - jekyll-seo-tag
+defaults:
+  - scope:
+      path: ""
+    values:
+      image: /assets/images/onwin-logo.png
+lang: tr_TR
+locale: tr_TR
+timezone: Europe/Istanbul 
